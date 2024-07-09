@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity, linux, and hacking.
 - 🌱 I’m currently learning cybersecurity
 - 💞️ I’m looking to collaborate on entry level projects
-- 📫 How to reach me: gerti_gegollari@universitetipolis.edu.al
+- 📫 How to reach me: gegollarigerti@hotmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Love tech, love gaming!
 
